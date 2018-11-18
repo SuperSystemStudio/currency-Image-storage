@@ -1,2 +1,0 @@
-# illustrations
-illustrations
